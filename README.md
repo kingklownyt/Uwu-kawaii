@@ -1,6 +1,6 @@
 # Uwu-kawaii
 A totally “cringe anime RP game” no jumpcare
-
+im too lazy/stupid to make the code
 
 
 
